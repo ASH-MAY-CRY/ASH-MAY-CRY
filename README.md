@@ -1,6 +1,8 @@
 <div align="center">
 <img width="734" height="234" alt="THTDH (1)" src="https://github.com/user-attachments/assets/3a1e92f0-4b99-44bb-a32d-857908f76fee" />
 
+![](https://komarev.com/ghpvc/?username=your-github-ASH-MAY-CRY&label=sweet+++&&color=c8aaaa)
+
 <img width="410" height="110" alt="tdtherdhre" src="https://github.com/user-attachments/assets/28064e0a-ee09-4751-85d8-7b6f6327a18c" />
 
 <img width="736" height="414" alt="ERGERHRF (1)" src="https://github.com/user-attachments/assets/e8a9115a-b8c3-411c-b686-fc127afd6099" />
