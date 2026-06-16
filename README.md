@@ -2,6 +2,7 @@
 
 <img width="536" height="300" alt="Micah Bell edit" src="https://github.com/user-attachments/assets/c7d113d6-4d5b-4efb-9b9b-9e48ae46052c" />
 
+<i>$${\color{#5D241E}⫘⫘⫘⫘⫘}$$</i>
 
 <i>$${\color{#AF9F8E}"𝘐‎ 𝘵𝘰𝘭𝘥‎ 𝘺𝘰𝘶‎ 𝘋𝘶𝘵𝘤𝘩,‎ 𝘵𝘩𝘢𝘵‎ 𝘩𝘦'𝘥‎ 𝘤𝘰𝘮𝘦‎ 𝘣𝘢𝘤𝘬‎ 𝘩𝘦𝘳𝘦‎ 𝘵𝘰‎ 𝘳𝘰𝘣‎ 𝘶𝘴,‎ 𝘭𝘪𝘬𝘦‎ 𝘐‎ 𝘴𝘢𝘪𝘥‎ 𝘩𝘦‎ 𝘸𝘰𝘶𝘭𝘥"}$$</i>
 
@@ -13,6 +14,7 @@
 
 <i>$${\color{#9A4335}"𝘕𝘰𝘵‎ 𝘔𝘰𝘭𝘭𝘺,‎ 𝘋𝘶𝘵𝘤𝘩...‎ 𝘐𝘵'𝘴‎ 𝘩𝘪𝘮,‎ 𝙃𝙄𝙈!‎ 𝙆𝙄𝙇𝙇‎ 𝙃𝙄𝙈!‎ 𝘕𝘖𝘛‎ 𝘔𝘖𝘓𝘓𝘠,‎ 𝘕𝘖𝘛‎ 𝘔𝘐𝘚𝘚‎ 𝘎𝘙𝘐𝘔𝘚𝘏𝘈𝘞...‎ 𝘕𝘰𝘵‎ 𝘦𝘷𝘦𝘯‎ 𝘊𝘰𝘭𝘮..."}$$</i>
 
+<i>$${\color{#5D241E}⫘⫘⫘⫘⫘}$$</i>
 
 https://github.com/user-attachments/assets/a7bcf373-90d5-4b66-8cd7-911cfecf7dd5
 
