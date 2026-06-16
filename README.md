@@ -3,12 +3,16 @@
 <img width="536" height="300" alt="Micah Bell edit" src="https://github.com/user-attachments/assets/c7d113d6-4d5b-4efb-9b9b-9e48ae46052c" />
 
 
-"I told you Dutch, that he'd come back here to rob us, like I said he would"
+<i>$${\color{#AF9F8E}"𝘐‎ 𝘵𝘰𝘭𝘥‎ 𝘺𝘰𝘶‎ 𝘋𝘶𝘵𝘤𝘩,‎ 𝘵𝘩𝘢𝘵‎ 𝘩𝘦'𝘥‎ 𝘤𝘰𝘮𝘦‎ 𝘣𝘢𝘤𝘬‎ 𝘩𝘦𝘳𝘦‎ 𝘵𝘰‎ 𝘳𝘰𝘣‎ 𝘶𝘴,‎ 𝘭𝘪𝘬𝘦‎ 𝘐‎ 𝘴𝘢𝘪𝘥‎ 𝘩𝘦‎ 𝘸𝘰𝘶𝘭𝘥"}$$</i>
 
-"I came to take what's mine... You rat"
+<i>$${\color{#9A4335}"𝘐‎ 𝘤𝘢𝘮𝘦‎ 𝘵𝘰‎ 𝘵𝘢𝘬𝘦‎ 𝘸𝘩𝘢𝘵'𝘴‎ 𝘮𝘪𝘯𝘦...‎ 𝘠𝘰𝘶‎ 𝘳𝘢𝘵"}$$</i>
 
-"I ain't no rat black lung"
+<i>$${\color{#AF9F8E}"𝘐‎ 𝘢𝘪𝘯'𝘵‎ 𝘯𝘰‎ 𝘳𝘢𝘵‎ 𝙗𝙡𝙖𝙘𝙠‎ 𝙡𝙪𝙣𝙜!"}$$</i>
 
-"You are Micah, you're the rat."
+<i>$${\color{#9A4335}"𝘠𝘰𝘶‎ 𝘢𝘳𝘦‎ 𝙈𝙞𝙘𝙖𝙝...‎ 𝘺𝘰𝘶'𝘳𝘦‎ 𝘵𝘩𝘦‎ 𝘳𝘢𝘵."}$$</i>
 
-"Not Molly, Dutch... It's him, HIM! KILL HIM! NOT MOLLY, NOT MISS GRIMSHAW... Not even Colm..."
+<i>$${\color{#9A4335}"𝘕𝘰𝘵‎ 𝘔𝘰𝘭𝘭𝘺,‎ 𝘋𝘶𝘵𝘤𝘩...‎ 𝘐𝘵'𝘴‎ 𝘩𝘪𝘮,‎ 𝙃𝙄𝙈!‎ 𝙆𝙄𝙇𝙇‎ 𝙃𝙄𝙈!‎ 𝘕𝘖𝘛‎ 𝘔𝘖𝘓𝘓𝘠,‎ 𝘕𝘖𝘛‎ 𝘔𝘐𝘚𝘚‎ 𝘎𝘙𝘐𝘔𝘚𝘏𝘈𝘞...‎ 𝘕𝘰𝘵‎ 𝘦𝘷𝘦𝘯‎ 𝘊𝘰𝘭𝘮..."}$$</i>
+
+
+https://github.com/user-attachments/assets/a7bcf373-90d5-4b66-8cd7-911cfecf7dd5
+
