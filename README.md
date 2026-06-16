@@ -1,6 +1,9 @@
+"I told you Dutch, that he'd come back here to rob us, like I said he would"
 
-![](https://komarev.com/ghpvc/?username=your-github-ASH-MAY-CRY&label=sweet+++&&color=c8aaaa)
+"I came to take what's mine... You rat"
 
-<img width="1500" height="1000" alt="fdhbfdb" src="https://github.com/user-attachments/assets/66fadcd3-b940-4daa-8957-a4f80f661e54" />
+"I ain't no rat black lung"
 
-dead acc
+"You are Micah, you're the rat."
+
+"Not Molly, Dutch... It's him, HIM! KILL HIM! NOT MOLLY, NOT MISS GRIMSHAW... Not even Colm..."
