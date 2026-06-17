@@ -1,5 +1,7 @@
-<div align="center">
-
+ <div align="center">
+   
+![](https://komarev.com/ghpvc/?username=your-github-ASH-MAY-CRY&label=rats+++&&color=7E4428)
+   
 <img width="536" height="300" alt="Micah Bell edit" src="https://github.com/user-attachments/assets/c7d113d6-4d5b-4efb-9b9b-9e48ae46052c" />
 
 <i>$${\color{#5D241E}⫘⫘⫘⫘⫘}$$</i>
